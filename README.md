@@ -4,4 +4,4 @@
 
 📊 Quantitative research | 📈 Alpha generation | 🤖 Systematic trading  
 
-🔗 [LinkedIn](#) | ✉️ quant.korir@example.com | Mobile: +254712345678
+🔗 [LinkedIn](#) | ✉️ quant.korir@example.com | Mobile: +254712876720
